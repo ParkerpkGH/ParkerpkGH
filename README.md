@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ParkerpkGH
+- 👀 I’m interested in Clone Hero And Other Rhythm Games.
+- 🌱 I’m currently learning Coding and Ummmmmm... Not Much else
+- 📫 How to reach me Email: parker4tin@gmail.com, Discord: TTV/Parker_pk_GH#5024, if you need a tester for something im able to help because im not a good coder and suck at doing art and other things
